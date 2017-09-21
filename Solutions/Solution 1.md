@@ -1,0 +1,1 @@
+To install these two programs all I had to do was click on the links provided and follow the instructions. Upon choosing what options I wanted all that was left was installing and running the programs to make sure they worked.
